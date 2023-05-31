@@ -5,7 +5,7 @@ Para un mejor funcionamiento de la tool, desactivar el antivirus mientras lo use
 
 ![nKgRQyL]
 
-![descarga (1)](https://github.com/anunankis/NYAN-CAT-S-Tools/assets/134969502/347d345a-e55f-47aa-b7f4-737663ae26d9)
+![descarga (1)
 
 
 
